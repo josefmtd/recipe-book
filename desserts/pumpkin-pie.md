@@ -11,7 +11,7 @@
 
 ## Ingredients
 
-- Pie shell
+- Gluten-free Pie shell
 - Nutmeg
 - Can of evaporated milk
 - 0.4 cup sugar
@@ -35,3 +35,5 @@
 
 - 15 min at 425 F
 - 40-50 min at 350 F
+
+Enjoy!

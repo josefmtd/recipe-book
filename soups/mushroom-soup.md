@@ -11,7 +11,7 @@
 - **4 cups** (about 950ml) vegetable or chicken broth
 - **1 cup** (240ml) heavy cream or coconut milk for a vegan option
 - **Salt and black pepper** to taste
-- **2 tablespoons** all-purpose flour (optional, for thickening)
+- **2 tablespoons** all-purpose gluten-free flour (optional, for thickening)
 - **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
 
@@ -50,4 +50,4 @@
 
 7. **Serve:**
    - Ladle the soup into bowls and garnish with fresh parsley. Serve with
-     crusty bread on the side for dipping.
+     crusty bread on the side for dipping. Enjoy with friends or family!

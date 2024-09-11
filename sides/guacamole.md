@@ -9,6 +9,7 @@
 - 1 tsp salt
 - 1/2 onion
 - 1 Tbsp cilantro
+- 1 tsp pepper
 
 
 ## Instructions
@@ -18,5 +19,5 @@
 - chop chili
 - squeeze lime
 - add salt
-- and mix well
+- and very mix well
 - enjoy!

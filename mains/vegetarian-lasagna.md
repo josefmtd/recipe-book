@@ -18,6 +18,7 @@
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
+- **2** large onions, sliced
 
 
 ## Instructions
@@ -49,6 +50,8 @@
    - Remove the foil and bake for another 15-20 minutes, or until the cheese is bubbly and golden brown.
 
 6. **Serve:**
+
+7. **There is a non-vegetarian option too**
    - Let the lasagna cool for 10-15 minutes before slicing.
    - Garnish with fresh basil leaves if desired.
-   - Serve warm and enjoy!
+   - Serve warm and enjoy
